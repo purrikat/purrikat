@@ -1,20 +1,20 @@
 
 <p align="center">
-<img src="https://i.imgur.com/kOPu6OT.png" />
+<img src="https://files.catbox.moe/njr6qw.png" />
 </p>
 
 <p align="center"
 
 <p align="center">
-<img src="https://i.imgur.com/QzyQkAM.png" />
+<img src="https://files.catbox.moe/l71sym.png" />
 </p>
 
 <p align="center">
-<img src="https://i.imgur.com/bV1YpcY.png" />
+<img src="https://files.catbox.moe/v7mksu.png" />
 </p>
 
 
 <p align="center"
   
-[rentry](https://rentry.co/biteybaby) ♡    [bfs rentry](https://rentry.co/fqllenleaf)
+[𝐫𝐞𝐧𝐭𝐫𝐲](https://rentry.co/lustrousness)  ﹒[𝐩𝐫𝐧𝐬.𝐜𝐜](https://pronouns.cc/@funeralprincess)
 </p>
