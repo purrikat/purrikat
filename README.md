@@ -1,20 +1,21 @@
 
 <p align="center">
-<img src="https://files.catbox.moe/njr6qw.png" />
+<img src="https://files.catbox.moe/bp03qs.png" />
 </p>
 
 <p align="center"
 
 <p align="center">
-<img src="https://files.catbox.moe/l71sym.png" />
+<img src="https://files.catbox.moe/3u47e5.png" />
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/v7mksu.png" />
+<img src="https://files.catbox.moe/jvo0hh.gif" /> <img src="https://files.catbox.moe/uba5x7.gif" />
 </p>
 
+<p align="center">
+<img src="https://files.catbox.moe/1o30w6.png" />
+</p>
 
 <p align="center"
-  
-[𝐫𝐞𝐧𝐭𝐫𝐲](https://rentry.co/lustrousness)  ﹒[𝐩𝐫𝐧𝐬.𝐜𝐜](https://pronouns.cc/@funeralprincess)
 </p>
