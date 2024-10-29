@@ -1,7 +1,7 @@
 <div id="header" align="center">
   
-wip. lol!
-check out my ivan fanart....heh..
+too lazy to remake
+links r below.
 
 <p align="center"
 
