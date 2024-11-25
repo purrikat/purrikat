@@ -1,10 +1,10 @@
 <div id="header" align="center">
   
-too lazy to remake
-links r below.
+![](https://komarev.com/ghpvc/?username=purrikat&color=grey&style=plastic&label=fans)
 
-<p align="center"
 
 <p align="center">
-<img src="https://files.catbox.moe/zzxij5.png" />
+<a href="https://data-card-for-spotify.herokuapp.com/card?user_id=31k56zhqxl7z5kowlmsixvd6l2fe">
+  <img src="https://data-card-for-spotify.herokuapp.com/api/card?user_id=31k56zhqxl7z5kowlmsixvd6l2fe" alt="Data Card for Spotify">
+</a>
 </p>
