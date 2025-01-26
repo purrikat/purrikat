@@ -4,7 +4,7 @@
  
   <img src="https://files.catbox.moe/up1may.png" alt="i stole the code from kiri btw" border="0">
   
-[rentry](https://rentry.co/depersonalise)⠀⠀♪⠀⠀[ata](https://purrikat.atabook.org)⠀
+remaking links⠀⠀♪⠀⠀[ata](https://purrikat.atabook.org)⠀
 </div>
 
 # <div id="header" align="center">
