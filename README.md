@@ -2,9 +2,9 @@
 
 ![](https://komarev.com/ghpvc/?username=purrikat&color=beb8b4&style=flat&label=⠀⠀⠀★⠀ᴠɪᴇᴡꜱ⠀⠀⠀)
  
-  <img src="https://files.catbox.moe/up1may.png" alt="i stole the code from kiri btw" border="0">
+  <img src="https://files.catbox.moe/owvb7k.png" alt="i stole the code from kiri btw" border="0">
   
-remaking links⠀⠀♪⠀⠀[ata](https://purrikat.atabook.org)⠀
+hi guys rmk one day trust.
 </div>
 
 # <div id="header" align="center">
