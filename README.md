@@ -4,6 +4,6 @@
 
 ![](https://files.catbox.moe/c65msz.png)
 
-read my pages before interacting ok? thx
+read my page before interacting ok? thx
  
 </div>
